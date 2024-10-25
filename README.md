@@ -1,3 +1,3 @@
 bro thinks he's funny.
 
-[x](https://x.com/idoexploits)
+[[x](https://x.com/idoexploits)]
