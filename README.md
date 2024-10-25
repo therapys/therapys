@@ -1,1 +1,3 @@
-`bro thinks he's funny.`
+bro thinks he's funny.
+
+[x](https://x.com/idoexploits)
