@@ -1,3 +1,3 @@
-bro thinks he's funny.
+i am not funny.
 
 [\[x\]](https://x.com/idoexploits)
