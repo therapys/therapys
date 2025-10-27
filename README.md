@@ -1,3 +1,5 @@
 i am not funny.
 
-[\[x\]](https://x.com/idoexploits)
+i think i like fake ginger(s)?
+
+[\[x\]](https://x.com/karlkiilaspaa)
